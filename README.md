@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on projects of the future.
 - 📫 How to reach me, 
 Linkedin: https://www.linkedin.com/in/sdhungel/
-or X: https://x.com/digitalsouj
-- ⚡ Fun fact: Nepali living in Sydney
+or X: https://x.com/soujanyadhungel
+- ⚡ Fun fact: Nepali living in Sydney / Vipassana Student
 
